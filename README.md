@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on New projects.
 - 📫 How to reach me insta: @utsaharijal_
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: Early Gets its Worm
+- ⚡ Fun fact: early bird gets its worm
 
 <!---
 utsaharijal/utsaharijal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
